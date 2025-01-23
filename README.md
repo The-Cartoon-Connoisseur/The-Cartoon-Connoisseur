@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🌱 I’m currently learning Computer Programming to become a Video Game Programmer.
+- 📫 How to reach me: lucashester@icloud.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I love cartoons! Specifically Gravity Falls, Amphibia, and The Owl House.
